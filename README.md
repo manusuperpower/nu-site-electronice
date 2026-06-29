@@ -1,6 +1,6 @@
 # nu-site-electronice
 d;an lgjdf
-muie la tigani
+muie la togani
 
 
 aici face ed o modificare blanao
